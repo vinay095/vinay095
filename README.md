@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @vinay095
+- 👋 Hi, I’m Vinay
 
